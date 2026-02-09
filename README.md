@@ -1,2 +1,0 @@
-# practiveportfo
-practive portfolio
